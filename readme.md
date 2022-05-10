@@ -3,3 +3,4 @@ gyakorlas
 gyakorlas 
 gyakorlas
 es sok sok gyakorlas
+mkdmvv
